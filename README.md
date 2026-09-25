@@ -1,4 +1,4 @@
-# Hi, I'm Swadha Kumari 👋
+# Hi, I'm Kumari Swadha👋
 
 ### Software Developer | Data Analytics | AI/ML Enthusiast
 
